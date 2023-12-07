@@ -7,4 +7,4 @@
 -📫 How to reach me: anjithadivakaran@gmail.com|[LinkedIn]()|[https://www.linkedin.com/in/anjithadivakaran/]|[Portfolio](https://anjithadivakaran.github.io/index.html)  
 
 ## 🖥️ My Works!
--I'm Currently 👇...................
+I'm Currently 👇
